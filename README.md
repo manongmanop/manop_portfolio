@@ -1,1 +1,0 @@
-# manop_portfolio
